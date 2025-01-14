@@ -1,1 +1,0 @@
-# dayli-quotes
